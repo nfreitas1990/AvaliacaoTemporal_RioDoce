@@ -3,3 +3,7 @@ O rompimento da barragem de rejeitos de Fundão, em novembro de 2015, provocou a
 
 ### Objetivo
 Avaliar o impacto temporal decorrente do rompimento da barragem de Fundão (Minas Gerais, Brasil) na qualidade da água da bacia do rio Doce.
+
+sss
+
+
